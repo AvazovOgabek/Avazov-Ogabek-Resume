@@ -1,1 +1,1 @@
-# Avazov-Og-abek-Resume
+# Avazov-Og'abek-Resume
